@@ -1,2 +1,2 @@
 # SomeDemo
-ohhhh My way to be a nibi man. 
+ohhhh My way 
